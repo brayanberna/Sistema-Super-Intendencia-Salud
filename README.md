@@ -8,4 +8,5 @@
 <br><br>
 ![2022-12-12-14-06-50](https://user-images.githubusercontent.com/61950433/207108814-0849eeab-c6a6-4125-9f99-5bee178caae4.gif)
 <br><br>
-![2022-12-12 15-12-14 (1)](https://user-images.githubusercontent.com/61950433/207122783-c86fe34e-8e06-4801-91d6-f29737cbf9ff.gif)
+![2022-12-12-15-12-14](https://user-images.githubusercontent.com/61950433/207123278-4fbd8727-4cd9-4d8e-9a92-9a078daeb7f2.gif)
+<br><br>
